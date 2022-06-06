@@ -1,0 +1,1 @@
+My personality Type from the 16 personality types quiz ended up being ENFP. The name for this personality type is the campaigner. ENFPs are curious, perceptive, enthusiastic, excellent communicators, festive, and good natured. Campaigners weeknesses are people pleasing, becoming unfocused, disorganized, overly accommodating, overly optimistic, and restless.
